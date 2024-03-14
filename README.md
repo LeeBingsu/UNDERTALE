@@ -1,1 +1,1 @@
-(THE FRIENDLY RPG WHERE NOBODY HAS TO DIE)[https://sansz.kro.kr/UNDERTALE.kro.kr]
+[THE FRIENDLY RPG WHERE NOBODY HAS TO DIE](https://sansz.kro.kr/UNDERTALE.kro.kr)
