@@ -1,7 +1,3 @@
-
-
-https://github.com/LeeBingsu/sans/assets/139062081/31737c09-81ec-4d9d-8ced-5b0b16eb8fdb
-
 i'm sans.
 sans the skeleton.
 
