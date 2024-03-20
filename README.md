@@ -1,5 +1,4 @@
-![i'm sans.
-sans the skeleton.](https://github.com/LeeBingsu/sans/assets/139062081/4adaccf6-6bd3-48ae-9bc6-24d27ed6d08d)
+![sans](https://github.com/LeeBingsu/UNDERTALE/assets/139062081/8388fd79-5630-4e81-85b9-65c2dc7386b8)
 
 i'm sans.
 sans the skeleton.
