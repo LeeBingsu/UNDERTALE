@@ -1,5 +1,3 @@
-![sans](https://github.com/LeeBingsu/UNDERTALE/assets/139062081/8388fd79-5630-4e81-85b9-65c2dc7386b8)
-
 i'm sans.
 sans the skeleton.
 
