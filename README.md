@@ -3,13 +3,13 @@
 i'm sans.
 sans the skeleton.
 
-Main Game -> [THE FRIENDLY RPG WHERE NOBODY HAS TO DIE..](https://sansz.kro.kr/UNDERTALE.html) -by BluePheonix25
+Main Game -> [THE FRIENDLY RPG WHERE NOBODY HAS TO DIE..](http://sans.sh0.kro.kr/UNDERTALE.html) -by BluePheonix25
 
 Special Versions
- -> [Undertale : Sans Battles](https://sansz.kro.kr/SansBattles.html) -by shrimpnoodles (recommended for starters)
+ -> [Undertale : Sans Battles](http://sans.sh0.kro.kr/SansBattles.html) -by shrimpnoodles (recommended for starters)
                     
- -> [Undertale : Rejuvenation](https://sansz.kro.kr/Rejuvenation.html) -by S00TF00T
+ -> [Undertale : Rejuvenation](http://sans.sh0.kro.kr/Rejuvenation.html) -by S00TF00T
                     
- -> [Undertale : The Final Experiment](https://sansz.kro.kr/TheFinalExperiment.html) -by LucasBr003
+ -> [Undertale : The Final Experiment](http://sans.sh0.kro.kr/TheFinalExperiment.html) -by LucasBr003
                     
- -> [Undertale : Last Breath Trio](https://sansz.kro.kr/LastBreathTrio.html) -by BluePheonix25
+ -> [Undertale : Last Breath Trio](http://sans.sh0.kro.kr/LastBreathTrio.html) -by BluePheonix25
